@@ -11,3 +11,7 @@ so how fix???
 magic
 
 oink oink
+
+## wait help i compile everything from source and i cant download stuff how do i compile this without rxbs?!?!?/1/1/1/1/1/1
+
+shut up
